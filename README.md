@@ -60,6 +60,8 @@ EXPLICACION Y RESOLUCION DE EJERCICIOS O PROBLEMAS:
 
 VIDEO
 
+https://www.youtube.com/watch?v=KBQ8Qzg38Qw
+
 CONCLUSIONES
 
 Al momento de desarrollar los ejercicios y problemas propuestos en los capítulos 17 y 18, se pudo determinar que es necesario conocer los conceptos de reactancia capacitiva, frecuencia, reactancia iductiva, etc, para llegar a los resultdos correctos.
