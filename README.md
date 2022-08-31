@@ -32,7 +32,31 @@ CAPÍTULO 18
 
 EXPLICACION Y RESOLUCION DE EJERCICIOS O PROBLEMAS:
 
+![](https://github.com/MelanyArmas/Tarea-9/blob/main/Ejercicios%20Cap%C3%ADtulo%2017/Tarea%209_00001.jpg)
 
+![](https://github.com/MelanyArmas/Tarea-9/blob/main/Ejercicios%20Cap%C3%ADtulo%2017/Tarea%209_00002.jpg)
+
+![](https://github.com/MelanyArmas/Tarea-9/blob/main/Ejercicios%20Cap%C3%ADtulo%2017/Tarea%209_00003.jpg)
+
+![](https://github.com/MelanyArmas/Tarea-9/blob/main/Ejercicios%20Cap%C3%ADtulo%2017/Tarea%209_00004.jpg)
+
+![](https://github.com/MelanyArmas/Tarea-9/blob/main/Ejercicios%20Cap%C3%ADtulo%2017/Tarea%209_00005.jpg)
+
+![](https://github.com/MelanyArmas/Tarea-9/blob/main/Ejercicios%20Cap%C3%ADtulo%2017/Tarea%209_00006.jpg)
+
+![](https://github.com/MelanyArmas/Tarea-9/blob/main/Ejercicios%20Cap%C3%ADtulo%2017/Tarea%209_00007.jpg)
+
+![](https://github.com/MelanyArmas/Tarea-9/blob/main/Ejercicios%20Cap%C3%ADtulo%2018/Tarea%209_00008.jpg)
+
+![](https://github.com/MelanyArmas/Tarea-9/blob/main/Ejercicios%20Cap%C3%ADtulo%2018/Tarea%209_00009.jpg)
+
+![](https://github.com/MelanyArmas/Tarea-9/blob/main/Ejercicios%20Cap%C3%ADtulo%2018/Tarea%209_00010.jpg)
+
+![](https://github.com/MelanyArmas/Tarea-9/blob/main/Ejercicios%20Cap%C3%ADtulo%2018/Tarea%209_00011.jpg)
+
+![](https://github.com/MelanyArmas/Tarea-9/blob/main/Ejercicios%20Cap%C3%ADtulo%2018/Tarea%209_00012.jpg)
+
+![](https://github.com/MelanyArmas/Tarea-9/blob/main/Ejercicios%20Cap%C3%ADtulo%2018/Tarea%209_00013.jpg)
 
 VIDEO
 
